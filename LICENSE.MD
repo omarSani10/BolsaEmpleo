@@ -1,6 +1,6 @@
 # **LICENCIA DE USO RESTRINGIDO**
 
-**Última actualización: [Fecha]**  
+**Última actualización: [18-02-2025]**  
 
 **Titular de los derechos:**  
 **Nexo Byte - Omar Sani**  
